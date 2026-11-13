@@ -5,7 +5,7 @@
 I build products end to end: backend, web, mobile, billing, release and growth. Recently that means LLM features, agents and workflow automation that businesses use every day, plus Android apps I publish and run myself.
 Open to **remote**, hybrid, on-site in Almaty and **relocation**.
 
-[mmadi8218@gmail.com](mailto:mmadi8218@gmail.com) · [Telegram @madiyar](https://t.me/madiyar) · [LinkedIn](https://www.linkedin.com/in/madiyar-elmuratov)
+[mmadi8218@gmail.com](mailto:mmadi8218@gmail.com) · [Telegram @madiyar](https://t.me/madiyar) · [LinkedIn](https://www.linkedin.com/in/madiyar-elmuratov-571258364)
 
 ---
 
